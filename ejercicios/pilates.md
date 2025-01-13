@@ -23,3 +23,12 @@ Realiza movimientos lentos y controlados, enfocándote en la respiración.
 Sigue una rutina básica con ejercicios como "The Hundred" y estiramientos de pierna.
 
 Trabaja en sesiones de 30-60 minutos, dependiendo de tu nivel.
+
+## Consejos
+
+Consulta a un instructor certificado si eres principiante.
+
+Mantén la espalda recta y el abdomen contraído.
+
+Practica regularmente para mejorar tu técnica y resultados.
+
