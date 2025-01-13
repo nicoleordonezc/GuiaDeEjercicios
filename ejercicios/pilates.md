@@ -13,3 +13,13 @@ Incremento de la fuerza del núcleo.
 Aumento de la flexibilidad y equilibrio.
 
 Reducción del estrés.
+
+## Instrucciones
+
+Usa ropa cómoda y una colchoneta antideslizante.
+
+Realiza movimientos lentos y controlados, enfocándote en la respiración.
+
+Sigue una rutina básica con ejercicios como "The Hundred" y estiramientos de pierna.
+
+Trabaja en sesiones de 30-60 minutos, dependiendo de tu nivel.
