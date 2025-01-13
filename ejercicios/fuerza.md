@@ -21,3 +21,10 @@ Comienza con pesos ligeros y aumenta progresivamente.
 
 Descansa entre series (1-3 minutos).
 
+## Consejos
+
+Prioriza la técnica antes que el peso.
+
+No te sobreentrenes; da tiempo para la recuperación.
+
+Incorpora días de descanso activo.
