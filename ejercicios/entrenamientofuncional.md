@@ -13,3 +13,13 @@ Incremento del equilibrio y coordinación.
 Prevención de lesiones.
 
 Desarrollo de fuerza funcional.
+
+## Instrucciones
+
+Utiliza herramientas como pelotas medicinales, bandas elásticas y pesas ligeras.
+
+Realiza ejercicios como sentadillas, zancadas y levantamientos.
+
+Enfócate en movimientos compuestos.
+
+Alterna entre diferentes niveles de intensidad.
