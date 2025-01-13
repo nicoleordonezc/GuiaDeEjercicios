@@ -23,3 +23,11 @@ Comienza con sesiones de 20-30 minutos.
 Alterna entre estilos para trabajar diferentes grupos musculares.
 
 Mantén una respiración constante y controlada.
+
+## Consejos
+
+Practica la técnica con un instructor si eres principiante.
+
+No olvides hidratarte, incluso en el agua.
+
+Incorpora ejercicios fuera del agua para complementar el entrenamiento.
