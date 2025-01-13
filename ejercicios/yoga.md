@@ -18,3 +18,7 @@ Evitar forzarse
 Conocer las posibilidades de tu cuerpo
 Escuchar tu cuerpo y parar si alguna postura duele
 Trabajar el cuerpo de manera equilibrada
+
+## Consejos
+
+La respiración es fundamental en el yoga. Durante la clase, el instructor puede ofrecer ejercicios de respiración. 
