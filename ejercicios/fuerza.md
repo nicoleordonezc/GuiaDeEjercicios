@@ -10,3 +10,14 @@ El entrenamiento de fuerza se centra en aumentar la capacidad muscular mediante 
 -Fortalecimiento de los huesos y articulaciones.
 -Mejora del metabolismo basal.
 -Prevención de lesiones.
+
+## Instrucciones
+
+Realiza un calentamiento previo de 5-10 minutos.
+
+Escoge ejercicios básicos como sentadillas, press de banca, peso muerto y dominadas.
+
+Comienza con pesos ligeros y aumenta progresivamente.
+
+Descansa entre series (1-3 minutos).
+
