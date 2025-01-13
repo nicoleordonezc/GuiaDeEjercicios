@@ -23,3 +23,12 @@ Comienza con paseos cortos y aumenta gradualmente la distancia.
 Mantén una cadencia constante (70-90 RPM).
 
 Usa equipo de seguridad (casco, luces, reflectores).
+
+## Consejos
+
+Varía entre terrenos planos y colinas para desafiarte.
+
+Mantén una buena hidratación.
+
+Revisa el estado de tu bicicleta regularmente.
+
