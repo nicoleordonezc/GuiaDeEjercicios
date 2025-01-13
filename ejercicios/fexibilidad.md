@@ -24,3 +24,11 @@ Mantén cada estiramiento por al menos 20-30 segundos.
 No fuerces el rango de movimiento.
 
 Incorpora disciplinas como yoga o pilates.
+
+## Consejos
+
+Practica diariamente para obtener mejores resultados.
+
+Respira profundamente mientras te estiras.
+
+Escucha a tu cuerpo y evita el dolor.
