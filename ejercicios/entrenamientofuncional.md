@@ -23,3 +23,12 @@ Realiza ejercicios como sentadillas, zancadas y levantamientos.
 Enfócate en movimientos compuestos.
 
 Alterna entre diferentes niveles de intensidad.
+
+## Consejos
+
+Trabaja con un entrenador si eres principiante.
+
+Prioriza la estabilidad antes de aumentar la carga.
+
+Mantén una postura adecuada durante los ejercicios.
+
